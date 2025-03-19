@@ -1,1 +1,0 @@
-# anm10610622ucsc005-Akalya-D
